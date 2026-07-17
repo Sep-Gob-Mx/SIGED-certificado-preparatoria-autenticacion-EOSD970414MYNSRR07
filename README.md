@@ -1,2 +1,0 @@
-# SIGED-certificado-preparatoria-autenticacion-EOSD970414MYNSRR07
-EOSD970414MYNSRR07
